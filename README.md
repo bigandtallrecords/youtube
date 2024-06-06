@@ -5,6 +5,11 @@ A free open-source Youtube link downloader GUI. Quality settings and audio-only 
 For more of my open source projects keep and eye on my site: 
 https://bigandtallrecords.com/code
 
+dontations welcome
+ https://www.paypal.com/paypalme/DanielOdom
+
+❤️
+
 ## Requirements
 
 - Python 3.10
@@ -37,3 +42,8 @@ https://bigandtallrecords.com/code
 
  If you like my open-source software you may also like my music
  https://bigandtallrecords.com/music
+
+ dontations welcome
+ https://www.paypal.com/paypalme/DanielOdom
+
+❤️
