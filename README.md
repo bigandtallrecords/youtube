@@ -43,22 +43,16 @@ dontations welcome
  If you like my open-source software you may also like my music
  https://bigandtallrecords.com/music
 
- dontations welcome
+ Dontations welcome
  https://www.paypal.com/paypalme/DanielOdom
 
-<span style="color: #ff69b4;">if donations aren't your thing perhaps a cooll mug with klaus schwab's face on it?</span>
+<span style="color: #ff69b4;">If donations aren't your thing perhaps a cool mug with klaus schwab's face on it?</span>
 
  ![Alt text](images/merch-1.png)
 
-<span style="color: #00ffff;">or perhaps a cool shirt of a floppy disk?(#00ffff).</span>
+If so! Then please visit: https://bigandtallrecords.com/merch
 
-![Alt text](images/merch-2.png)
-
-<span style="color: #ff69b4;">not gonna lie we are also looking for a handout like everyone else...</span>
-
-![Alt text](images/merch-3.png)
-
-love
-daniel 
+Love
+Daniel 
 ❤️❤️❤️
 
