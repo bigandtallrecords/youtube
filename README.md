@@ -46,7 +46,7 @@ dontations welcome
  Dontations welcome
  https://www.paypal.com/paypalme/DanielOdom
 
-<span style="color: #ff69b4;">If donations aren't your thing perhaps a cool mug with klaus schwab's face on it?</span>
+<span style="color: #ff69b4;">If donations aren't your thing then perhaps a mug with Klaus Schwab's face on it?</span>
 
  ![Alt text](images/merch-1.png)
 
